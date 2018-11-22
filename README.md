@@ -1,0 +1,1 @@
+# Gorkemkirdar_midterm
